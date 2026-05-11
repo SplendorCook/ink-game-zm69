@@ -1,4 +1,4 @@
-#  
+#  ink game Scripts custom is the best ink game Script, featuring auto-collect and no cooldown. Safe and powerful for all your needs.
 
 
 
